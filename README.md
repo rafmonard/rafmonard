@@ -4,28 +4,34 @@
 ![BADASS](https://media1.tenor.com/m/oWtBbshqSGIAAAAd/leader-usogui.gif)
 ## LISTEN TO ME, I'M THAT GOAT 👹
 GOAT :
-Frérot, laisse-moi te dire un truc. T’as beau parler fort, si t’as pas la tête dans le game, ça sert à rien.
+Écoute-moi bien, jeune. La parole est facile, mais la maîtrise, elle, demande du temps et de la discipline. Tu ne peux pas prétendre dominer si ton esprit est encore désordonné.
 
 BAKA :
-Mais t’inquiète, je gère, j’ai la street créd, j’suis chaud, je suis dans le move.
+Mais j’suis chaud, j’ai la force, je sais ce que je fais !
 
 GOAT :
-Ah ouais ? La street créd ça se gagne pas en criant plus fort que les autres, c’est en bossant dur, en restant smart. Le move, ça veut rien dire si tu sais pas où tu vas.
+La force sans contrôle est une épée qui se retourne contre soi. Tu crois qu’agir sans réfléchir te mène à la victoire ? Non. La vraie puissance vient de la sagesse et de la patience.
 
 BAKA :
-Mais moi j’suis un winner, je prends des risques, j’suis dans l’action, tu peux pas test.
+Mais je prends des risques, j’vais droit au but !
 
 GOAT :
-Prendre des risques, c’est bien. Mais faut pas être juste un casse-cou, faut être un stratège. Le vrai winner, il calcule, il anticipe. Sinon c’est juste du hasard.
+Prendre des risques, oui, mais sans stratégie, tu es un enfant jouant avec le feu. Un guerrier avisé calcule ses pas, il anticipe le terrain, il apprend de chaque chute.
 
 BAKA :
-T’es sérieux là ? J’suis juste naturel, ça suffit.
+Je suis naturel, ça suffit pas ?
 
 GOAT :
-La nature c’est cool, mais le travail, la discipline, c’est ça qui fait la différence. Même un talent brut sans travail, c’est vite fini. Moi j’suis le GOAT parce que j’ai bossé, j’ai appris, j’ai progressé. T’es prêt à faire pareil ?
+Le naturel est un don, mais sans l’aiguiser, il s’émousse vite. L’effort, la constance, voilà ce qui transforme un talent en légende. Sans travail, même le plus grand don reste dormant.
 
 BAKA :
-Je sais pas trop, ça demande trop d’efforts...
+Mais c’est dur de tenir, j’suis pas sûr d’y arriver...
 
 GOAT :
-Regarde-moi bien. Le vrai taf, c’est ce qui te rend meilleur chaque jour. Alors arrête de parler, commence à faire, et là tu comprendras ce que ça veut dire d’être au top.
+Le chemin du maître n’est jamais facile. C’est dans la douleur, dans la répétition, que tu forges ton esprit. Celui qui abandonne ne connaîtra jamais la vraie grandeur.
+
+BAKA :
+Alors, je fais quoi ?
+
+GOAT :
+Commence par maîtriser tes émotions, écoute avant de parler, apprends avant d’agir. Sois humble, travaille chaque jour, et alors seulement, tu pourras prétendre à la grandeur. Maintenant, lève-toi, et montre-moi ta volonté.

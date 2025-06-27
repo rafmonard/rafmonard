@@ -1,6 +1,6 @@
 # OI OI OI 😈
 ![OIOIOI](https://media1.tenor.com/m/nqbltxqWcV8AAAAC/usogui-anime.gif)
-## WELCOME INTO GOAT🐐 DIMENSION 
+## WELCOME TO GOAT🐐 DIMENSION 
 ![BADASS](https://media1.tenor.com/m/oWtBbshqSGIAAAAd/leader-usogui.gif)
 ## LISTEN TO ME, I'M THAT GOAT 👹
 GOAT :

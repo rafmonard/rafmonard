@@ -35,3 +35,5 @@ Alors, je fais quoi ?
 
 GOAT :
 Commence par maîtriser tes émotions, écoute avant de parler, apprends avant d’agir. Sois humble, travaille chaque jour, et alors seulement, tu pourras prétendre à la grandeur. Maintenant, lève-toi, et montre-moi ta volonté.
+## BAKA PRIME
+![BAKA PRIME](https://media1.tenor.com/m/-7lo2_PrgRkAAAAC/usogui-souichi-kiruma.gif)

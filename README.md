@@ -1,5 +1,9 @@
 # OI OI OI 😈
-![OIOIOI](https://media1.tenor.com/m/nqbltxqWcV8AAAAC/usogui-anime.gif)
+
+<a href="https://i.pinimg.com/736x/2e/bd/5c/2ebd5cc11a8f7af51ab13d20d45e9b35.jpg" target="_blank">
+  <img src="https://media1.tenor.com/m/nqbltxqWcV8AAAAC/usogui-anime.gif" alt="Usogui gif">
+</a>
+
 ## WELCOME TO GOAT🐐 DIMENSION 
 ![BADASS](https://media1.tenor.com/m/oWtBbshqSGIAAAAd/leader-usogui.gif)
 ## LISTEN TO ME, I'M THAT GOAT 👹

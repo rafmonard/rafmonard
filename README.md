@@ -13,7 +13,7 @@
 <a href="https://i.redd.it/wbljjg71v2ic1.gif" target="_blank"><strong>GOAT</strong></a> :
 Écoute-moi bien, jeune. La parole est facile, mais la maîtrise, elle, demande du temps et de la discipline. Tu ne peux pas prétendre dominer si ton esprit est encore désordonné.
 
-<a href="https://i.gifer.com/embedded/download/NdTJ.gif" target="_blank"><strong>BAKA</strong></a> :
+<a href="https://www.icegif.com/wp-content/uploads/2023/04/icegif-1491.gif" target="_blank"><strong>BAKA</strong></a> :
 Mais j’suis chaud, j’ai la force, je sais ce que je fais !
 
 <a href="https://i.redd.it/wbljjg71v2ic1.gif" target="_blank"><strong>GOAT</strong></a> :

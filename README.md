@@ -1,11 +1,14 @@
 # OI OI OI 😈
 
 <a href="https://i.pinimg.com/736x/2e/bd/5c/2ebd5cc11a8f7af51ab13d20d45e9b35.jpg" target="_blank">
-  <img src="https://media1.tenor.com/m/nqbltxqWcV8AAAAC/usogui-anime.gif" alt="Usogui gif">
+  <img src="https://media1.tenor.com/m/nqbltxqWcV8AAAAC/usogui-anime.gif" alt="BAKAKUGO">
 </a>
 
 ## WELCOME TO GOAT🐐 DIMENSION 
-![BADASS](https://media1.tenor.com/m/oWtBbshqSGIAAAAd/leader-usogui.gif)
+<a href="https://www.roblox.com/fr/games/18138547215/5-LUCK-Anime-Card-Battle" target="_blank">
+  <img src="https://media1.tenor.com/m/oWtBbshqSGIAAAAd/leader-usogui.gif" alt="Fart Caca Anime">
+</a>
+
 ## LISTEN TO ME, I'M THAT GOAT 👹
 GOAT :
 Écoute-moi bien, jeune. La parole est facile, mais la maîtrise, elle, demande du temps et de la discipline. Tu ne peux pas prétendre dominer si ton esprit est encore désordonné.
